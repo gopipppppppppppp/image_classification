@@ -1,4 +1,4 @@
-# projects Updated soon
+# Projects updated soon
 
 
 Download and install
